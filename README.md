@@ -1,0 +1,2 @@
+# Crypto-Kindergarten
+We will teach from the basic of basics to the highest levels of everything crypto. We need interested people in all aspects of the crypto field to help get on this project so we can getvit up soon. People will pay us in coin or usd to teach them specific things to the whole shabang. Alot (millions ) of people around the globe will find out that crypto is the future and isnt going anywhere and we can make that happen and profit from it when it does.
